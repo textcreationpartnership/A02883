@@ -36,39 +36,43 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The seconde parte of the Domesticall or housholde sermons for a godly housholder, to his childre[n] 
+
+1. Deut .vi.
+The firſt and ſecond ſermon of the belief, be prynted in the firſt parte.
 #####Body#####
+✚ The third Sermon domeſticall vnto their children, of the conception of Chriſte.TO the firſt ſenten
+    _ ✚ The third Sermon domeſticall vnto their children, of the conception of Chriſte.
 
-1. ✚ The third Sermon domeſticall vnto their children, of the conception of Chriſte.
+    _ The fourth ſermon domeſticall to their chyldren, of Chriſtes byrthe.
 
-1. The fourth ſermon domeſticall to their chyldren, of Chriſtes byrthe.
+    _ The fyfte Sermon domeſtical vnto their Children, of the paſſyon of Chriſt.
 
-1. The fyfte Sermon domeſtical vnto their Children, of the paſſyon of Chriſt.
+    _ The ſixte domeſty call Sec mon to their children of the croſſe of Chriſt▪
 
-1. The ſixte domeſty call Sec mon to their children of the croſſe of Chriſt▪
+    _ The ſeuenth Sermon Domeſticall to their children, of the death and the buriyng of Chriſte.
 
-1. The ſeuenth Sermon Domeſticall to their children, of the death and the buriyng of Chriſte.
+    _ The tenth ſermon domeſtical, vnto their chyldren, of the Aſcention of Chriſt.
 
-1. The tenth ſermon domeſtical, vnto their chyldren, of the Aſcention of Chriſt.
+    _ The eleuenth domeſticall ſermon to their Chyldren of the latter iudgemente.
 
-1. The eleuenth domeſticall ſermon to their Chyldren of the latter iudgemente.
+    _ The twelfth Domeſticall ſermon to their chyldren, of God the holy ghoſt.
 
-1. The twelfth Domeſticall ſermon to their chyldren, of God the holy ghoſt.
+    _ The thirtenth domeſticall ſermon to their chyldren, of Chriſtes Churche.
 
-1. The thirtenth domeſticall ſermon to their chyldren, of Chriſtes Churche.
+    _ The .xiiii. domeſticall or how•holde ſermon to their chyldren, of the remiſſion of ſynnes.
 
-1. The .xiiii. domeſticall or how•holde ſermon to their chyldren, of the remiſſion of ſynnes.
+    _ The fiftenth domeſtical or houſhold ſermon to their chyldren, of the reſurrection of the dead.
 
-1. The fiftenth domeſtical or houſhold ſermon to their chyldren, of the reſurrection of the dead.
+    _ The ſixtenth Sermon Domeſticall to their children, of the life euerlaſtyng.
 
-1. The ſixtenth Sermon Domeſticall to their children, of the life euerlaſtyng.
+    _ The ſeuententh domeſticall or houſhold ſermon vnto their chyldren of Baptiſme.
 
-1. The ſeuententh domeſticall or houſhold ſermon vnto their chyldren of Baptiſme.
+    _ ❧The .xviii. Domeſticall or ho•ſholde ſermon to their chyldren, of the ſupper of the Lorde.
 
-1. ❧The .xviii. Domeſticall or ho•ſholde ſermon to their chyldren, of the ſupper of the Lorde.
+1. The houſeholders prayer.
 
 #####Back#####
-The seconde parte of the Domesticall or housholde sermons for a godly housholder, to his childre[n] 
+Imprinted▪ the laſt 〈…〉▪❧〈…〉▪ At Wor•eter by Ihon 〈…〉〈…〉▪
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
